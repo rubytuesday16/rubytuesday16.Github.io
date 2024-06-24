@@ -9,6 +9,8 @@
 #### As you can clearly see, Dobby is living his it girl era in his natural habitat. 
 
 
+![](https://media.tenor.com/DQZuhzX0-DIAAAAM/dance-dobbi.gif)
+### as you can see Dobby uses his free elf time doing things that REALLY matter
 
 ## Dobby is here to teach you how to be a free elf <(._.)>
 
