@@ -1,6 +1,5 @@
-# what up. welcome to how to be skody
-## brought to you by.... skodes the chuck
-
+# How to be a free elf
+### brought to thee by the master elf
 
 #### rubytuesday16.Github.io
 
