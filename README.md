@@ -14,15 +14,10 @@
 ###### .
 ###### .
 
-[Click to see the lord himself](https://rubytuesday16.github.io/dobby.html)
-
-
-
-
 ## Dobby is here to teach you how to be a free elf <(._.)>
 
 
-
+[Click to see the lord himself](https://rubytuesday16.github.io/dobby.html)
 
 
 
