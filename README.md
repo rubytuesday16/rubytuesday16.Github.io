@@ -6,7 +6,7 @@
 
 ### Dobby 
 
-#### As you can clearly see, Dobby is living his it girl era in his natural habitat. 
+#### As you can clearly see, Dobby is living his HOT girl era in his natural habitat. 
 
 
 ![](https://media.tenor.com/DQZuhzX0-DIAAAAM/dance-dobbi.gif)
