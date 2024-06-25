@@ -17,7 +17,7 @@
 ###### .
 ###### .
 
-[Dobee](https://rubytuesday16.github.io/dobbo.html)
+[Click to see the lord himself](https://rubytuesday16.github.io/dobbo.html)
 
 
 
